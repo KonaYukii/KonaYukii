@@ -1,6 +1,6 @@
 ### Hi there 👋, I'm [Amy](https://www.linkedin.com/in/amyli97/)
 
-I'm a Research Analyst at [Hearst Magazines](https://www.hearst.com/magazines).
+I'm a Research Manager at [Hearst Magazines](https://www.hearst.com/magazines).
 
 - 🌱 I’m currently looking for oppotunities to enhance my project management skills.
 - 👯 I’m eager to collaborate on anything related to data.
